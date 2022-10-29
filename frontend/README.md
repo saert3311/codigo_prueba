@@ -1,0 +1,2 @@
+# Mini Blog Jose Duarte
+
